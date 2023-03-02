@@ -10,7 +10,7 @@ No tracking
 100% clean and safe apk
 0 detection in all antivirus
 
-Download it from our telegram channel https://t.me/vancedyoutubelatest
+Download it from our telegram channel https://t.me/xrevanced
 
 Try it now
 
